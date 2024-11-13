@@ -1,16 +1,14 @@
-## Hi there 👋
+## aleatory_XD 😎
 
-<!--
+
 **cherrybloomXD/cherrybloomXD** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- Pronouns: she/her
+-  💠Fun fact: I play violin and I have a sketchbook 💠
+- I have a account in Scratch https://scratch.mit.edu/users/chewiblumii-uwu/
+- I'm leaning how to use Github so, if you have a idea or something to help me I thank 👍
+
+![](https://github.com/user-attachments/assets/9359f1c8-a0b3-4a74-b691-971312937035)
+
+
