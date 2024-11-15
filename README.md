@@ -1,7 +1,7 @@
 ## aleatory_XD 😎
 
 
-**cherrybloomXD/cherrybloomXD** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**cherrybloomXD/cherrybloomXD** I am a ✨ _new usuary in Github_ ✨
 
 
 - Pronouns: she/her
