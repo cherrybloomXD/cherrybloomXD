@@ -9,6 +9,6 @@
 - I have a account in Scratch https://scratch.mit.edu/users/chewiblumii-uwu/
 - I'm leaning how to use Github so, if you have a idea or something to help me I thank 👍
 
-![](https://github.com/user-attachments/assets/9359f1c8-a0b3-4a74-b691-971312937035)
 
 
+<iframe src="https://assets.pinterest.com/ext/embed.html?id=92183123618706889" height="233" width="236" frameborder="0" scrolling="no" ></iframe>
